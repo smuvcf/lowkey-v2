@@ -2,4 +2,4 @@
 
 
 
-(https://imgur.com/a/6VGATQB)
+![Instructions](http://i.imgur.com/6VGATQB)
