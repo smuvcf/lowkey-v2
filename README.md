@@ -2,7 +2,7 @@
 
 Leaked lowkey_v2 source code
 
+It was buyable, but someone bought it and gave the source code to everyone 
+code of source code is shitty
 
-Click that button to download:
-
-http://i.imgur.com/6VGATQB
+Menu: http://i.imgur.com/6VGATQB
